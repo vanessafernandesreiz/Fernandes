@@ -8,7 +8,7 @@ meu nome é Vanessa Fernandes
 📚- gosto de ler uns negócios diferenciados
 💻- segue nois lá 😗
 
-- https://instagram.com/_fernandes_ofc_?igshid=MzMyNGUyNmU2YQ==
+-https://instagram.com/_fernandes_ofc_?igshid=MzMyNGUyNmU2YQ==
 
 ![](https://media.tenor.com/msa2F_fEUewAAAAC/kenjaku.gif)  
 
