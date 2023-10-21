@@ -12,8 +12,7 @@ pode me chama do que quiser👽
 - https://instagram.com/_fernandes_ofc_?igshid=MzMyNGUyNmU2YQ==
   
 
-![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=anuraghazra&show_icons=true&theme=dark)
 
-![](https://media.tenor.com/msa2F_fEUewAAAAC/kenjaku.gif)  
+![](https://media.tenor.com/Ur6nVCDf-z8AAAAC/suguru-geto-geto.gif)  
 
 
